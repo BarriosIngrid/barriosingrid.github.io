@@ -1,2 +1,0 @@
-# barriosingrid.github.io
-evidencia
